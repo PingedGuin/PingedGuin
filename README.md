@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @PingedGuin
+- 👀 I’m interested in AI & programming
+- 🌱 I’m currently learning coding
+- 💞️ I’m looking to collaborate on myself
+- 📫 How to reach me ahmadabuhatabpc@gmail.com
+- 😄 Pronouns: him
+- ⚡ Fun fact: black pepole can't see in the dark.
