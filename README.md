@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on myself
 - 📫 How to reach me ahmadabuhatabpc@gmail.com
 - 😄 Pronouns: him
-- ⚡ Fun fact: black pepole can't see in the dark.
+- ⚡ Fun fact: black pepole can't seen in the dark.
