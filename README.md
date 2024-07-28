@@ -3,4 +3,3 @@
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on myself
 - 📫 How to reach me ahmadabuhatabpc@gmail.com
-- 😄 Pronouns: him
